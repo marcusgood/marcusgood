@@ -1,4 +1,4 @@
-I like making things. Check back to see whats going on.
+I like making things. Check back occasionally to see whats going on.
 
 
 

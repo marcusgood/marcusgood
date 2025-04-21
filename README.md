@@ -1,4 +1,3 @@
-I like making things. Check back to see whats going on.
 
 
 
